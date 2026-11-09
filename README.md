@@ -4,8 +4,8 @@
 - No consumas comidas irritantes (fritos, grasas, picantes etc.)
 - No consumas bebidas alcohólicas ni drogas recreativas. 
 - No rasques ni retires costras o piel.
-- ==🔴Evita piscinas, jacuzzis, saunas, playas y baños prolongados durante al menos 3 semanas.==
-- No expongas el tatuaje al sol directo durante las primeras 3 semanas ==🟢(preferiblemente por un mes)==.
+- **Evita piscinas, jacuzzis, saunas, playas y baños prolongados durante al menos 3 semanas.**
+- No expongas el tatuaje al sol directo durante las primeras 3 semanas **(preferiblemente por un mes).**
 - Usa ropa limpia y suelta que no genere demasiada fricción sobre la zona tatuada.
 - Evita actividades que generen fuerza o fricción excesiva sobre la zona tatuada.
 - No uses productos con alcohol, perfumes o exfoliantes sobre el tatuaje.
@@ -17,7 +17,7 @@
 **Primeros dos días:**
 - Mantén el vendaje inicial durante el tiempo indicado (no mas de 24 horas).
 - Lava tus manos antes de tocar el tatuaje.
-- Retira el vendaje y lava suavemente la zona con ==🟢agua fría== (sin uso de jabones).
+- Retira el vendaje y lava suavemente la zona con **agua fría** (sin uso de jabones).
 - Deja secar solo (no uses toallas ni otros elementos).
 - Repite este levado en la mañana y en la noche. 
 
@@ -25,7 +25,7 @@
 - Repite el lavado habitual en la mañana y noche, deja secar solo.
 - Cuando el tatuaje este seco después del lavado, aplica una capa muy fina de balm tattoo sobre el tatuaje y espárcela muy bien hasta que quede totalmente transparente y sin excesos.
 - Repite después de cada lavado cuando el tatuaje este seco (dos veces por día).
-- ==🔴Evita aplicar exceso de producto.== La piel debe quedar hidratada, no saturada.
+- **Evita aplicar exceso de producto.** La piel debe quedar hidratada, no saturada.
 
 
 ## Cuidados posteriores al tatuaje con parche cicatrizante.
